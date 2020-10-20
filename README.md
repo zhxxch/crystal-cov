@@ -1,5 +1,7 @@
 ## 短篇集：结晶时代随笔
 
+原作：[明日方舟](https://ak.hypergryph.com/)（[HYPERGRYPH CO., LTD](https://www.hypergryph.com/)）
+
 可能包含：个人设定、原创人物、暴力描写。
 
 1. [《独行的血魔》](https://crystal.cov.ariant.cn/Warfarin)
